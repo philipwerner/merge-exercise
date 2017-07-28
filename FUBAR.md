@@ -1,2 +1,4 @@
-Bob: I didn't pull. I should have pulled. There goes my wife.
-Oh well.
+This is what Bob & Carol did on Bob's computer when working on the first feature
+whats white and black and red all over?
+
+ya i dont know
